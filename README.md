@@ -31,7 +31,7 @@
 
 |**Day12**| On the twelfth day of induction program.We firstly had our MEDITATION COUNSELLING by the Homeopathic practitioner Dr.kanwalpreet Kaur Bhatt. We were able to dive in the deep sea of meditation state with her guidance. Then we had a program arranged by the cultural committe and it was indeed the best part of our induction program. we enjoyed a lot. There were competition of solo singing and solo dancing. At last i want to say that induction program helped me a lot to learn a lot of things. Induction program helped me to build confidence and helped me to find a way to reach my goal.|
 
-
+https://olympus1.mygreatlearning.com/course_certificates/download.pdf?user_name=HIVJHTKE
 <!---
 Inderv12/Inderv12 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
