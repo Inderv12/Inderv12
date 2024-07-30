@@ -1,3 +1,4 @@
+![IMG_0007](https://github.com/user-attachments/assets/939f6a7e-96ce-4979-b96a-9e2c0f579662)
 This is my activity report 
 
 
